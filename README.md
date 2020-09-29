@@ -9,7 +9,7 @@ The species belongs to the _Oreochromis_ genus which is the second most farmed f
 
 We have a farm in the West of Tanzania, where we farm this species togheter with our partners from [Lake Shore Lodge](https://lakeshoretz.com/)
 
-"We" is our company BongoFISH headquartered in Dar es Salaam, Tanzania. If you are interested in what we do, visit our [Website](www.bongofish.net) and follow us on [Facebook](https://www.facebook.com/BongoFishTanzania/).
+"We" is our company BongoFISH headquartered in Dar es Salaam, Tanzania. If you are interested in what we do, visit our [Website](https://bongofish.net/) and follow us on [Facebook](https://www.facebook.com/BongoFishTanzania/).
 
 
 # Random
